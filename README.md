@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Torygogo
 - 👀 I’m interested in drawing
-- 🌱 I’m currently learning semi-realism
+- 🌱 I’m currently learning cartoonish creepy vibes art
 - 💞️ I’m looking to collaborate on my idols
 - 📫 How to reach me? You can contact me on insta @kyl3i0
 
